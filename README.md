@@ -17,4 +17,9 @@ Things I am currently studying on
 
 ---
 > StartUp
-1. The Lean Startup ()
+1. Stanford StartUp - https://www.youtube.com/playlist?list=PL11qn6zM2Y3bMZdChxEqHKaCaKUjwItGL
+2. The Lean Startup
+3. hour work week
+4. The Millionaire Fastlane
+5. The Dot Com Secrets
+6. How Money Works? - (Watch multiple Youtube Videos)
